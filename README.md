@@ -1,6 +1,6 @@
 # MY CV PROFILE
 #### hey there i happy to share with you my new profile
-#### in this projict you can lern alot abou me
+#### in this projict you can learn alot abou me
 ### here some things :
 - i was learned in ort college software enginner
 - i have Certificate in syber security
